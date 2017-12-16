@@ -1,0 +1,2 @@
+# OneLiners
+One Liners allows you to share your favourite dialogues as reverts. Just tap to hear any message and long press to send it. It's simple and easy.   One liners is the audio version of your favourite memes. This app allows you to send recorded dialogues which have been enhanced and remastered for the best quality. It's as simple as long pressing on the line you like and the snippet will be shared.
